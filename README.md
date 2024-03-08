@@ -1,1 +1,0 @@
-Ana Paulina Ramirez Salazar
